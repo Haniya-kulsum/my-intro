@@ -1,1 +1,1 @@
-hey! this is Haniya Kulsum.
+hey! this is Haniya Kulsum, pursuing Master's program in Computer Science.
